@@ -1,0 +1,1 @@
+I am a third-year student at Ohio State Fisher College of Business pursuing a dual specialization in Information Systems and Finance. I am interested in all things Project Management, UX Design, and Data Architecture. Looking forward to collaborating! :)
